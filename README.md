@@ -1,23 +1,24 @@
-# 小姐姐最新下载地址（2020年3月1日更新）
-### [kwr4.xyz](http://kwr4.xyz)
-### [5jvb.xyz](http://5jvb.xyz)
-### 主播版下载地址 [dau5.xyz ](http://dau5.xyz )<br> （观众下载无法使用）
+# 小姐姐最新下载地址（2020年3月23日更新）
+### [sprz.xyz](http://sprz.xyz)
+### [a2yz.xyz](http://a2yz.xyz)
+### 主播版下载地址 [1eh0.xyz](http://1eh0.xyz)<br> （观众下载无法使用）
 备用观众版下载地址如下<br>
  
-sprz.xyz<br>
-p2m2.xyz<br>
-h26v.xyz<br>
-a2yz.xyz<br>
 l9sc.xyz<br>
 lelm.xyz<br>
 33z2.xyz<br>
 ot8n.xyz<br>
 xuw4.xyz<br>
-
+ef60.xyz<br>  
+tay6.xyz<br>  
+kjw5.xyz<br>  
+7n3d.xyz<br>  
+n1ze.xyz<br>
+u4z6.xyz<br>  
+x2sg.xyz<br>  
 
 备用主播版下载地址如下<br>
-ex05.xyz<br>
-1eh0.xyz<br>
+
 vb7a.xyz<br>
 zspk.xyz<br>
 glvg.xyz<br>
